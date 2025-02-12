@@ -13,4 +13,6 @@
 >Parallax is used in geodesy and astronomy to measure the distance to distant objects. 
 >In astronomy, this is a quantity equal to the apparent displacement of space objects,
 >depending on the movement of the observer in space.
+
+
 photos of the site project!-
