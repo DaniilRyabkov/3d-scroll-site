@@ -20,4 +20,3 @@
 ![Desktop Screenshot 2025 02 12 - 21 38 08 94](https://github.com/user-attachments/assets/542491f9-fdd3-4755-ab28-eaa6d345bd15)
 ![Desktop Screenshot 2025 02 12 - 21 38 19 77](https://github.com/user-attachments/assets/3dd64b9a-4ffd-4621-a8cc-6ddb54c54878)
 ![Desktop Screenshot 2025 02 12 - 21 38 29 28](https://github.com/user-attachments/assets/3359c7d7-0bb1-4742-a696-602b4af0de64)
-![Desktop Screenshot 2025 02 12 - 21 38 33 65](https://github.com/user-attachments/assets/0e413aa6-1857-4598-8d32-a904c75c1e5e)
